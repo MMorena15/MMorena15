@@ -2,8 +2,9 @@
 
 Meu nome é Maria Morena  
 
-- Estou estudando nessa bomba de aplicativo
+- Espero que esse aplicativo seja legal
 - Não aguento mais essa escola
 - Só estou fazendo isso para passar de ano
 
-- ### Me sigam no insta pliss 
+- ### Me sigam no insta -maria.morenaa-
+
